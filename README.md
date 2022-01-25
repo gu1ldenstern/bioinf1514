@@ -3,4 +3,5 @@
 
 ## полезные ссылки
 наш ноушн: https://nova-marble-6c0.notion.site/1514-63ff395f10474bb59b0af9730646612b
+
 наш телеграм чатик: https://t.me/+o2LA0eST2Fc2MTVi
